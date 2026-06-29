@@ -1,4 +1,4 @@
-# 
+# Mis à jour Process Explorer flux de travail pour Mac OS | Turbo Process Explorer flux de travail pour PC Windows. Avec automatisation système et planification des tâches — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
